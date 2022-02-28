@@ -1,5 +1,5 @@
 # kai-lacerna-pull-request-demo
 
-// Holy Thunder God 
-// Through Reflections of the Moon 
-// Rampage With Vigor! 
+// Holy Thunder Dog 
+// Through Reflections of the Spoon 
+// Rampage With Rigor! 
