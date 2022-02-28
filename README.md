@@ -1,6 +1,6 @@
 # kai-lacerna-pull-request-demo
 
-// Holy Thunder God 
+// Holy Thunder Dog 
 // Through Reflections of the Sun 
 // Rampage With Vigor! 
 
