@@ -1,5 +1,9 @@
 # kai-lacerna-pull-request-demo
 
-// Holy Thunder God 
+// Holy Thunder Kami 
 // Through Reflections of the Moon 
-// Rampage With Vigor! 
+// Rampage with Vigor! 
+
+An old silent pond
+A frog jumps into the pond
+Splash. Silence again.
